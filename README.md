@@ -1,0 +1,2 @@
+# bogorodica-neopalimaya
+Неопалимая купина
